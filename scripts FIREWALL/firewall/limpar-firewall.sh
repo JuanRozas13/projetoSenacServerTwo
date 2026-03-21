@@ -1,1 +1,0 @@
-# Resetar tudo
